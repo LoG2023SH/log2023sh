@@ -1,1 +1,0 @@
-# mathgdl.github.io
